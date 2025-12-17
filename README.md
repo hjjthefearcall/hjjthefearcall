@@ -1,14 +1,10 @@
-⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿
+𓊆⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔𓊇
 
 Hi hi
 
 Interact n c+h are welcomed unless name statess otherwise. Whisper if you want. Away means I'm away!! Please wait before you interact if you see that
 
-                                             𓊆⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿𓊇
-
 __Currat n his friends dni__. People who proudly call themself proshippers n darkshippers please dni. Other than that basic dni list
-
-                                             𓊆⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿⏔︶⏔‿𓊇
 
 I feel uncomfortable sharing my age unless I have to. If it's not important then please don't ask about my age
 
