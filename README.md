@@ -16,7 +16,7 @@ Copinglink and fictionkin. I like a ton of fandoms, ones that I like the most ar
 
 I love love love love love love collecting winter toys oh god it's that time of the year 
 ![Image](https://github.com/user-attachments/assets/290f015a-b345-4138-81e5-0c2a3dba8399)
-![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/0957a5852bdeb53ba2826c49a24871381dd92447/ezgif-377d564e938b2c3b.gif)
+![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/5b19b0546903ab8ea67f42e90343479cbf481051/ezgif-5f4636327a27cbb8.gif)
 
 I love my platonic husband
 
