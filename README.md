@@ -28,8 +28,8 @@ May be nervous when talking to new people, or maybe my body hates me and gives m
 OK? OK? Goodybye
 
 <p align="center">
-  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
-  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
+  <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
+  <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
 </p>
 
 ![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/1019c55f6e95a13e09b87ff6cc00b404b0890dbc/stnx3k.png)
