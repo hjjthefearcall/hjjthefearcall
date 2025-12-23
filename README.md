@@ -1,5 +1,6 @@
 <p align="center">
-  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/74f1fcf086138a924f16546dfbc60700c369f1fa/odli3q.png">
+  <img src="https://64.media.tumblr.com/a68fd23f522d67c2a7f6343d84227dfd/948b31eb082a3c1a-68/s2048x3072/1f077dafc63de8d2409afbaa38a4d5a466f7d048.pnj" width="500">
+  <img src="https://64.media.tumblr.com/a68fd23f522d67c2a7f6343d84227dfd/948b31eb082a3c1a-68/s2048x3072/1f077dafc63de8d2409afbaa38a4d5a466f7d048.pnj" width="500">
 </p>
 <p align="center">
   <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
