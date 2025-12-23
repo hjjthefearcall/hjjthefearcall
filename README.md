@@ -1,7 +1,8 @@
 ![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/74f1fcf086138a924f16546dfbc60700c369f1fa/odli3q.png)
-![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/74f1fcf086138a924f16546dfbc60700c369f1fa/odli3q.png)
 
 ![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png)
+![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png)
+
 
 Hi hi
 
