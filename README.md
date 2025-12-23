@@ -31,5 +31,3 @@ OK? OK? Goodybye
   <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
   <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
 </p>
-
-![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/1019c55f6e95a13e09b87ff6cc00b404b0890dbc/stnx3k.png)
