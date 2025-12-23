@@ -12,7 +12,8 @@ I feel uncomfortable sharing my age unless I have to. If it's not important then
 
 Copinglink and fictionkin. I like a ton of fandoms, ones that I like the most are Phighting, DOA8BW, Bumi by Tere Liye, sherlock holmes, and args in general, but mostly ones that have religious themes and so many more that I can't fit in here. Even if you don't see your fandom here please do talk to me
 
-I love love love love love love collecting winter toys oh god it's that time of the year
+I love love love love love love collecting winter toys oh god it's that time of the year 
+![Image](https://github.com/user-attachments/assets/290f015a-b345-4138-81e5-0c2a3dba8399)
 
 I love my platonic husband
 
