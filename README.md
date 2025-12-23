@@ -1,10 +1,7 @@
+![image]()
 <p align="center">
-  <img src="https://64.media.tumblr.com/a68fd23f522d67c2a7f6343d84227dfd/948b31eb082a3c1a-68/s2048x3072/1f077dafc63de8d2409afbaa38a4d5a466f7d048.pnj" width="400">
-  <img src="https://64.media.tumblr.com/a68fd23f522d67c2a7f6343d84227dfd/948b31eb082a3c1a-68/s2048x3072/1f077dafc63de8d2409afbaa38a4d5a466f7d048.pnj" width="400">
-</p>
-<p align="center">
-  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
-  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
+  <img src="https://files.catbox.moe/765u9l.gif" width="400">
+  <img src="https://files.catbox.moe/765u9l.gif" width="400">
 </p>
 
 Hi hi
@@ -26,7 +23,14 @@ I love my platonic husband
 May be nervous when talking to new people, or maybe my body hates me and gives me a horrible headache, just continue to talk if I suddenly stay quiet
 
 OK? OK? Goodybye
-
+<p align="center">
+  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
+  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
+</p>
+<p align="center">
+  <img src="https://files.catbox.moe/765u9l.gif" width="400">
+  <img src="https://files.catbox.moe/765u9l.gif" width="400">
+</p>
 <p align="center">
   <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
   <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
