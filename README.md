@@ -10,8 +10,11 @@ I feel uncomfortable sharing my age unless I have to. If it's not important then
 
 Copinglink and fictionkin. I like a ton of fandoms, ones that I like the most are Phighting, DOA8BW, Bumi by Tere Liye, sherlock holems, and args in general, but mostly ones that have religious themes and so many more that I can't fit in here. Even if you don't see your fandom here please do talk to me
 
+I love love love love love love collecting winter toys oh god it's that time of the year
+
 I love my platonic husband
 
 May be nervous when talking to new people, or maybe my body hates me and gives me a horrible headache, just continue to talk (about anything, I'll listen)
 
 OK? OK? Goodybye
+![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/74f1fcf086138a924f16546dfbc60700c369f1fa/odli3q.png)
