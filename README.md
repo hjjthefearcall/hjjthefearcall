@@ -1,7 +1,12 @@
-![image]()
+<p align="center">
+  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/6c6335679050ce2db6c4c8047a096ed62707dc9c/0330fa91-c213-466a-ad6c-7f050c18f561.png" width="700">
 <p align="center">
   <img src="https://files.catbox.moe/765u9l.gif" width="400">
   <img src="https://files.catbox.moe/765u9l.gif" width="400">
+</p>
+<p align="center">
+  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
+  <img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/050d444a55a0a0781d0a4b3f5725f0c258bf7929/g1h41f.png">
 </p>
 
 Hi hi
