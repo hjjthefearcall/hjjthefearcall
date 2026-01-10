@@ -17,11 +17,7 @@ __Currat n his friends dni__. Proshippers dni sorry, I know it has two meanings 
 
 I feel uncomfortable sharing my age unless I have to. If it's not important then please don't ask about my age
 
-Copinglink and fictionkin. I like a ton of fandoms, ones that I like the most are Phighting, DOA8BW, Bumi by Tere Liye, sherlock holmes, and args in general, but mostly ones that have religious themes and so many more that I can't fit in here. Even if you don't see your fandom here please do talk to me
-
-I love love love love love love collecting winter toys oh god it's that time of the year 
-![Image](https://github.com/user-attachments/assets/290f015a-b345-4138-81e5-0c2a3dba8399)
-![image alt](https://github.com/hjjthefearcall/hjjthefearcall/blob/5b19b0546903ab8ea67f42e90343479cbf481051/ezgif-5f4636327a27cbb8.gif)
+Copinglink and fictionkin. Brandon and  is me. I like a ton of fandoms, ones that I like the most are Phighting, DOA8BW, Bumi by Tere Liye, sherlock holmes, and args in general, but mostly ones that have religious themes and so many more that I can't fit in here. Even if you don't see your fandom here please do talk to me
 
 I love my platonic husband
 
@@ -40,3 +36,9 @@ OK? OK? Goodybye
   <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
   <img src="https://64.media.tumblr.com/09f5cdd0b841aae3cbd3abf1e1418420/948b31eb082a3c1a-39/s2048x3072/b88ae9a206a0b62b2a9b483618bddaf9c1fe2232.pnj" width="400">
 </p>
+
+<p align="center">
+  <img scr="https://github.com/user-attachments/assets/290f015a-b345-4138-81e5-0c2a3dba8399.gif">
+  <img scr="https://github.com/hjjthefearcall/hjjthefearcall/blob/5b19b0546903ab8ea67f42e90343479cbf481051/ezgif-5f4636327a27cbb8.gif">
+</p>
+
