@@ -23,6 +23,6 @@ OK? OK? Goodybye
 
 <p align="center"><a href="https://64.media.tumblr.com/"><img src="https://64.media.tumblr.com/43ae651cc39e67d8e238000a31331c61/cce2e130f21f5450-44/s250x400/b531d623171e65b97fb6a862edb2ec38aeb8b727.gif" width="500" height="200">
 
-<p align="right"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/ldtTPgafZb.gif" width="178"  height="67" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
-<p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/ldtTPgafZb.gif" width="178"  height="67" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
-
+<p align="right"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/ldtTPgafZb.gif" width="278"  height="167" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
+<p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/ldtTPgafZb.gif" width="278"  height="167" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
+<p align="left"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/ldtTPgafZb.gif" width="278"  height="167" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
