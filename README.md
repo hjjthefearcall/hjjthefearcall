@@ -17,5 +17,5 @@ May be nervous when talking to new people, or maybe my body hates me and gives m
 OK? OK? Goodybye
 
 
-<p align="center"><img scr=""></p>
+<p align="center"><img scr="https://github.com/hjjthefearcall/hjjthefearcall/blob/ed1c467676f845feeb7ebeae57f46b2c6df629e6/06ea90ae.gif"></p>
 
