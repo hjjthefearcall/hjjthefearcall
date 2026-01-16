@@ -1,9 +1,6 @@
-<p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/qljhwK3m9f.gif" width="385"  height="170" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
+<p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/ikbw1x.png" width="500"><p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/XSlKgzgnkP.gif" width="400"  height="200" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/"><p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/j2hbip.png" width="500"><p align="center">
 
-<p align="center">
-  <img scr="https://64.media.tumblr.com/c65596ae2c6a3d151de288c93d509c74/tumblr_inline_pcjgdcVXhc1vss73l_250.gif">
-</p>
-
+<p align="center"><a href="https://64.media.tumblr.com/"><img src="https://64.media.tumblr.com/c65596ae2c6a3d151de288c93d509c74/tumblr_inline_pcjgdcVXhc1vss73l_250.gif"><p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/3zkmvh.png">
 
 Hi hi
 
