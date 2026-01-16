@@ -2,6 +2,8 @@
 
 <p align="center"><a href="https://64.media.tumblr.com/"><img src="https://64.media.tumblr.com/c65596ae2c6a3d151de288c93d509c74/tumblr_inline_pcjgdcVXhc1vss73l_250.gif"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/pnno41.gif"><p align="center><a href="https://files.catbox.moe/"><p align="center"><img src="https://files.catbox.moe/3zkmvh.png">
 
+<p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/ikbw1x.png" width="500">
+
 Hi hi
 
 Interact n c+h are welcomed unless name statess otherwise. Whisper if you want to interact. Away means I'm away!! Please wait before you interact if you see that
@@ -19,5 +21,4 @@ May be nervous when talking to new people, or maybe my body hates me and gives m
 OK? OK? Goodybye
 
 
-<p align="center"><img scr="https://github.com/hjjthefearcall/hjjthefearcall/blob/ed1c467676f845feeb7ebeae57f46b2c6df629e6/06ea90ae.gif"></p>
-
+<p align="center"><a href="https://64.media.tumblr.com/"><img src="https://64.media.tumblr.com/43ae651cc39e67d8e238000a31331c61/cce2e130f21f5450-44/s250x400/b531d623171e65b97fb6a862edb2ec38aeb8b727.gif" width="500" height="200">
