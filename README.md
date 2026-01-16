@@ -5,19 +5,19 @@
 
 <p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/ikbw1x.png" width="500">
 
-Hi hi
+<p align="center">Hi hi</p>
 
-Interact n c+h are welcomed unless name statess otherwise. Whisper if you want to interact. Away means I'm away!! Please wait before you interact if you see that
+<p align="center">Interact n c+h are welcomed unless name statess otherwise. Whisper if you want to interact. Away means I'm away!! Please wait before you interact if you see that</p>
 
-__Currat n his friends dni__. Proshippers dni sorry, I know it has two meanings but both of them makes me feel icky. Other than that basic dni list
+<p align="center"> <b>Currat n his friends dni</b>. Proshippers dni sorry, I know it has two meanings but both of them makes me feel icky. Other than that basic dni list
 
-I feel uncomfortable sharing my age unless I have to. If it's not important then please don't ask about my age
+<p align="center">I feel uncomfortable sharing my age unless I have to. If it's not important then please don't ask about my age
 
-Copinglink and fictionkin. Brandon and  is me. I like a ton of fandoms, ones that I like the most are Phighting, DOA8BW, Bumi by Tere Liye, sherlock holmes, and args in general, but mostly ones that have religious themes and so many more that I can't fit in here. Even if you don't see your fandom here please do talk to me
+<p align="center">Copinglink and fictionkin. Brandon and  is me. I like a ton of fandoms, ones that I like the most are Phighting, DOA8BW, Bumi by Tere Liye, sherlock holmes, and args in general, but mostly ones that have religious themes and so many more that I can't fit in here. Even if you don't see your fandom here please do talk to me
 
-I love my platonic husband
+<p align="center">I love my platonic husband <s>(am I still her favorite person?)</s>
 
-May be nervous when talking to new people, or maybe my body hates me and gives me a horrible headache, just continue to talk if I suddenly stay quiet
+<p align="center">May be nervous when talking to new people, or maybe my body hates me and gives me a horrible headache, just continue to talk if I suddenly stay quiet
 
 <p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/j2hbip.png" width="500"><p align="center">
 <p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/xxWWOrPyEN.gif" width="400"  height="200" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
