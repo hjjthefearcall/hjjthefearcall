@@ -1,3 +1,5 @@
+<p align="center">CW: bright stuff, really, really bright stuff. This whole thing is an eyesore to look and read. Turn your brightness to the lowest
+
 <p align="center"><a href="https://i4.glitter-graphics.org/"><img src="https://i4.glitter-graphics.org/pub/1247/1247634ugjywbxzzj.gif" width="600">
 <p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/XSlKgzgnkP.gif" width="400"  height="200" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/"><p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/j2hbip.png" width="500"><p align="center">
 
@@ -8,13 +10,20 @@
 
 <p align="center"><img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/main/cooltext500272202668999.gif" width="100">
 
-<p align="center">Interact n c+h are welcomed unless name statess otherwise. Whisper if you want to interact. Away means I'm away!! Please wait before you interact if you see that</p>
+<p align="center"><img src="cooltext500277688565129.gif" width="650"> 
 
-<p align="center"> <b>Currat n his friends dni</b>. Proshippers dni sorry, I know it has two meanings but both of them makes me feel icky. Other than that basic dni list
+<p align="center"><img src="cooltext500278111616684.gif" width="1000"> 
 
-<p align="center">I feel uncomfortable sharing my age unless I have to. If it's not important then please don't ask about my age
+<p align="center"><img src="cooltext500281069690270.gif" width="650">
 
-<p align="center">Copinglink and fictionkin. Brandon and  is me. I like a ton of fandoms, ones that I like the most are Phighting, DOA8BW, Bumi by Tere Liye, sherlock holmes, and args in general, but mostly ones that have religious themes and so many more that I can't fit in here. Even if you don't see your fandom here please do talk to me
+<p align="center"><img src="cooltext500283625587251.gif" width="1000">
+
+<p align="center"><img src="cooltext500283874477781.gif" width="1000">
+
+<p align="center"><img src="cooltext500284114776375.gif" width="400">
+<p align="center"><img src="cooltext500284526047412.gif" width="500">
+<p align="left"><img src="cooltext500284962703849.gif">
+<p align="center"><img src="cooltext500285263610775.gif">
 
 <p align="center">I love my platonic husband <s>(am I still her favorite person?)</s>
 
