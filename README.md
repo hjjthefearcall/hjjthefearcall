@@ -2,9 +2,11 @@
 <p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/XSlKgzgnkP.gif" width="400"  height="200" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/"><p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/j2hbip.png" width="500"><p align="center">
 
 <p align="center"><img src="cooltext500270760573107.gif" width="600">
-<a href="https://64.media.tumblr.com/"><img src="https://64.media.tumblr.com/c65596ae2c6a3d151de288c93d509c74/tumblr_inline_pcjgdcVXhc1vss73l_250.gif"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/pnno41.gif"><p align="center><a href="https://files.catbox.moe/"><p align="center"><img src="https://files.catbox.moe/3zkmvh.png">
 
-<p align="center">Hi hi</p>
+<p align="center"><a href="https://64.media.tumblr.com/"><img src="https://64.media.tumblr.com/c65596ae2c6a3d151de288c93d509c74/tumblr_inline_pcjgdcVXhc1vss73l_250.gif"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/pnno41.gif">
+<p align="center><a href="https://files.catbox.moe/"><p align="center"><img src="https://files.catbox.moe/3zkmvh.png">
+
+<p align="center"><img src="https://github.com/hjjthefearcall/hjjthefearcall/blob/main/cooltext500272202668999.gif" width="100">
 
 <p align="center">Interact n c+h are welcomed unless name statess otherwise. Whisper if you want to interact. Away means I'm away!! Please wait before you interact if you see that</p>
 
