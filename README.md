@@ -25,9 +25,9 @@
 <p align="left"><img src="cooltext500284962703849.gif">
 <p align="center"><img src="cooltext500285263610775.gif">
 
-<p align="center">I love my platonic husband <s>(am I still her favorite person?)</s>
+<p align="center"><img src="cooltext500285438010025.gif">
 
-<p align="center">May be nervous when talking to new people, or maybe my body hates me and gives me a horrible headache, just continue to talk if I suddenly stay quiet
+<p align="center"><img src="cooltext500285613863098.gif" width="1000">
 
 <p align="center"><a href="https://files.catbox.moe/"><img src="https://files.catbox.moe/j2hbip.png" width="500"><p align="center">
 <p align="center"><a href="http://www.gigaglitters.com/"><img src="http://www.gigaglitters.com/created/xxWWOrPyEN.gif" width="400"  height="200" border="0" alt="http://www.rasaint.net/ - Glitter Graphics"></a><br><a href="http://www.gigaglitters.com/">
